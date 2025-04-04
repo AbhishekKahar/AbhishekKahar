@@ -2,9 +2,9 @@
 
 🎓 **B.Tech in Computer Science & AI/ML** | *Sanjivani University*  
 📍 **Kopargaon, India**  
-📧 kaharahbi17@gmail.com  
+📧 kaharabhi17@gmail.com  
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/abhishek-kahar-8a75a3628)  
-📞 9003673628  
+📞 9309573628  
 
 ---
 
